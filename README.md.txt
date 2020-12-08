@@ -1,1 +1,1 @@
-dowolny tekst
+zmiana zmiana
