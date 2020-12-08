@@ -1,1 +1,1 @@
-zmiana zmiana
+zmiana z
